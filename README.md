@@ -1,0 +1,2 @@
+# -
+reading，thinking，writing，sharing
